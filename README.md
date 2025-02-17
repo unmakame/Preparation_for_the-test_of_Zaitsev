@@ -4,7 +4,7 @@
 📌 **Билеты и вопросы:** [Google Таблица](https://docs.google.com/spreadsheets/d/1GxMKHBOkXtlHMGHkJ5dOq1cFXHjKPMme_6dP6OjsZCU/edit?usp=sharing)  
 📌 **Материал для подготовки:** [ЖЕЛЕЗКИ ](https://mai-806.github.io/fund-wiki/#lections1)  
 📌 **Материал для подготовки:** [ФУНДА ](https://t.me/prephuub)             
-
+📌 **Вопросы по железкам(акис)** [ВОПРОСЫ](https://docs.google.com/document/d/1N94_ipBbVvTj7PbSennQgRO2Hr10dcAAKm8BlpCIygo/edit?usp=sharing)
 
 
 
